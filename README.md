@@ -1,1 +1,0 @@
-# Grade6_ICT
